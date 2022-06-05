@@ -1,1 +1,5 @@
-- Nothing to read here =)
+- Rafaela, as called as Mortandela
+- PT - BR
+- Programming developer
+- Studying Computer Technician
+- Young enough to live
