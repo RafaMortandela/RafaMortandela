@@ -1,6 +1,1 @@
-- Rafaela, as called as Mortandela
-- PT - BR
-- Programming developer
-- Studying Computer Technician
-- Young enough to live
-- Girl Power
+- Nothing to read here =)
