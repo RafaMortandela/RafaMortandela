@@ -1,4 +1,5 @@
 - Rafaela, as called as Mortandela
 - PT - BR
 - Programming developer
-- Studying Computer Technician
+- Computer Technician at IFMS (2021-2023)
+- Currently studying Computer Science at UFSCAR
